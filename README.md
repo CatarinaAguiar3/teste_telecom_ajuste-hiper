@@ -1,1 +1,0 @@
-# teste_telecom_ajuste-hiper
